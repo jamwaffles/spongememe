@@ -1,0 +1,2 @@
+[Krabby Patty](http://www.dafont.com/krabby-patty.font?text=15+MiNUTeS+LATER) is free for personal use only
+[Spongefont Squaretype](http://www.dafont.com/spongefont-square-t.font) is free for commercial use
